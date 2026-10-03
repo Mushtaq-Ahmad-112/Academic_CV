@@ -21,7 +21,7 @@ In the tutorial, I explain each section of the CV, what information to include, 
 
 **My recommendation:** Download the Word template and follow the tutorial section by section to understand how to prepare your own academic CV.
 
-👉 **Watch the tutorial here:** [Insert Your YouTube Video Link]
+👉 **Watch the tutorial here:** https://youtu.be/BYuSZYe67Pw?si=nx9kAIQGollQam8B
 
 ## 🚀 How to Use This Template
 
